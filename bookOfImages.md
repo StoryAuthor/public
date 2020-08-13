@@ -1,5 +1,6 @@
 ![AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StoryAuthor/public/blob/master/IMG_20200812_184903.jpg)
 ![AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StoryAuthor/public/blob/master/IMG_20200812_184955.jpg)
+![AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StoryAuthor/public/blob/master/IMG_iie6gc.jpg)
 ![AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StoryAuthor/public/blob/master/IMG_kf1ids.jpg)
 ![AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StoryAuthor/public/blob/master/Screenshot_20200811-233557.png)
 ![AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StoryAuthor/public/blob/master/Screenshot_20200812-064902.png)
