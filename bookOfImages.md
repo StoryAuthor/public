@@ -8,7 +8,6 @@
 ![AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StoryAuthor/public/blob/master/IMG_-d1j9rg.jpg)
 ![AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StoryAuthor/public/blob/master/IMG_iie6gc.jpg)
 ![AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StoryAuthor/public/blob/master/IMG_kf1ids.jpg)
-![AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StoryAuthor/public/blob/master/IMG_kt3bnh.jpg)
 ![AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StoryAuthor/public/blob/master/IMG_-lfa4yb.jpg)
 ![AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StoryAuthor/public/blob/master/IMG_-mo58hr.jpg)
 ![AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StoryAuthor/public/blob/master/IMG_-psrlyz.jpg)
