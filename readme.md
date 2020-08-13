@@ -13,3 +13,4 @@
 ![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StoryAuthor/public/blob/master/IMG_-psrlyz.jpg)
 ![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StoryAuthor/public/blob/master/IMG_-v8ti4d.jpg)
 ![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StoryAuthor/public/blob/master/IMG_zlhdo.jpg)
+![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StoryAuthor/public/blob/master/Screenshot_20200813-153127.png)
