@@ -27,3 +27,4 @@
 ![AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StoryAuthor/public/blob/master/Screenshot_20200812-120331.png)
 ![AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StoryAuthor/public/blob/master/Screenshot_20200812-182325.jpg)
 ![AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StoryAuthor/public/blob/master/Screenshot_20200812-211102.png)
+![AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StoryAuthor/public/blob/master/Screenshot_20200813-141346.png)
