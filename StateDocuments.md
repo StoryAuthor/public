@@ -1,0 +1,6 @@
+![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StateDocuments/public/blob/master/alabama-coat-of-arms.jpg)
+![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StateDocuments/public/blob/master/CaliforniaHistoricCoatofArms.jpg)
+![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StateDocuments/public/blob/master/CoatofArms_of_Wisconsin.jpg)
+![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StateDocuments/public/blob/master/GeorgiaCoatofArms.jpg)
+![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StateDocuments/public/blob/master/MaineCoatofArmsStateSeal.jpg)
+![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StateDocuments/public/blob/master/SpottedNewtamphibian02.jpg)
