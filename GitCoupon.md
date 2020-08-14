@@ -5,3 +5,5 @@
 ![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/GitCoupon/public/blob/master/EfZlGt0WAAAqem9.jpg)
 ![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/GitCoupon/public/blob/master/finalscore.png)
 ![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/GitCoupon/public/blob/master/J6747408_a1.png)
+![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/GitCoupon/public/blob/master/mail.png)
+![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/GitCoupon/public/blob/master/mail-.png)
