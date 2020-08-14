@@ -7,5 +7,4 @@
 ![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/FederalDocuments/public/blob/master/canvasc.png)
 ![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/FederalDocuments/public/blob/master/canvasd.png)
 ![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/FederalDocuments/public/blob/master/canvbbbvas.png)
-![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/FederalDocuments/public/blob/master/download (1).png)
 ![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/FederalDocuments/public/blob/master/download.png)
