@@ -11,8 +11,4 @@
 ![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/GitCoupon/public/blob/master/J6747408_a1.png)
 ![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/GitCoupon/public/blob/master/mail.png)
 ![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/GitCoupon/public/blob/master/mail-.png)
-![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/GitCoupon/public/blob/master/Screenshot_20200815-092448.png)
 ![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/GitCoupon/public/blob/master/Screenshot_20200815-100056.png)
-![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/GitCoupon/public/blob/master/Screenshot_20200815-101737.png)
-![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/GitCoupon/public/blob/master/Screenshot_20200815-101832.png)
-![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/GitCoupon/public/blob/master/Screenshot_20200815-101846.png)
