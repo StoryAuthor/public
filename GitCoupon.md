@@ -12,3 +12,5 @@
 ![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/GitCoupon/public/blob/master/mail.png)
 ![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/GitCoupon/public/blob/master/mail-.png)
 ![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/GitCoupon/public/blob/master/Screenshot_20200815-100056.png)
+![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/GitCoupon/public/blob/master/Screenshot_20200815-114815.png)
+![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/GitCoupon/public/blob/master/Screenshot_20200815-115103.png)
