@@ -1,3 +1,5 @@
+![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StoryAuthor/public/blob/master/1_Union_NS.jpg)
+![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StoryAuthor/public/blob/master/1597541868192_39.jpg)
 ![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StoryAuthor/public/blob/master/2_Pike_EW.jpg)
 ![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StoryAuthor/public/blob/master/2_Pike_NS.jpg)
 ![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/StoryAuthor/public/blob/master/5_Spring_EW.jpg)
