@@ -8,6 +8,7 @@
 ![-+AIDJJ-StoryAuthorEngine-](https://github.com/StoryAuthor/public/blob/master/Alaskan_University_NS.jpg)
 ![-+AIDJJ-StoryAuthorEngine-](https://github.com/StoryAuthor/public/blob/master/IMG_50dpny.jpg)
 ![-+AIDJJ-StoryAuthorEngine-](https://github.com/StoryAuthor/public/blob/master/IMG_-6ixdku.jpg)
+![-+AIDJJ-StoryAuthorEngine-](https://github.com/StoryAuthor/public/blob/master/IMG_-7w45l8.jpg)
 ![-+AIDJJ-StoryAuthorEngine-](https://github.com/StoryAuthor/public/blob/master/IMG_dfxaue.jpg)
 ![-+AIDJJ-StoryAuthorEngine-](https://github.com/StoryAuthor/public/blob/master/IMG_-lpljkw.jpg)
 ![-+AIDJJ-StoryAuthorEngine-](https://github.com/StoryAuthor/public/blob/master/IMG_-lxkaz9.jpg)
